@@ -1,2 +1,2 @@
 # digital
-link adult 18++ only FREE  http://😎😍😍🤠🙌👩.🍕💩.ws
+click link  http://😎😍😍🤠🙌👩.🍕💩.ws
